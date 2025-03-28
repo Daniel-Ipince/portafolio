@@ -23,3 +23,4 @@ Enseñanza en las Áreas: Trigonometría, Física Elemental
 
 - Capacidad Emprendedora, Marketing Digital (MINEDU)
 
+P
